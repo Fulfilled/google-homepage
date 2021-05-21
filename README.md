@@ -1,1 +1,1 @@
-this will contain all ive done by the end of this project. Ill return tii fill it in when im done.
+This will contain all I've done by the end of this project. I'll return to fill it in when I'm done.
